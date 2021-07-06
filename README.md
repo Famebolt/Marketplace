@@ -1,4 +1,4 @@
-# Marketplace
+# Social media marketing Tips
 Social media marketplace
 Social media can be an incredibly valuable tool in your marketing arsenal. Just spend a few minutes on your favorite social network, and you’ll start to see the benefits of good marketing: you're more likely to find new customers, reach a larger audience, and get feedback from people who might not otherwise have seen your product. One of the key elements for success is knowing how to leverage all the tools available in social media.
 
